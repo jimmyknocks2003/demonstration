@@ -2,4 +2,4 @@
 
 
 
-Strive to achieve perfection and learn every day
+Strive to achieve perfection and learn every day!
